@@ -1,4 +1,4 @@
-# Hi there 👋, I'm AleTre89!
+# Hi there 👋, I'm Alex!
 
 Welcome to my GitHub profile! Here's a little about me:
 
